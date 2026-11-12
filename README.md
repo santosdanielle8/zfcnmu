@@ -1,0 +1,2 @@
+# zfcnmu
+Daily digest notes
